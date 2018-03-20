@@ -1,1 +1,2 @@
-# Dope-repo
+# Dope-repoNever trust Faruq
+Never trust Faruq
